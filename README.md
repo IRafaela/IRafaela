@@ -1,5 +1,5 @@
 
-Olá, eu sou a Rafaela Lima! 👋
+🚀Olá, eu sou a Rafaela Lima! 👋
 
 Estudante de Desenvolvimento de Sistemas
 
